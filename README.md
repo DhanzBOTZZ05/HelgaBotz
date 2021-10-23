@@ -1,4 +1,4 @@
 # HelgaBotz
 Gunakan Bot Dengan Sebaik Mungkin
-Bot By Helga Ilham
-Subscribe Channel Hanbu FF
+Bot By Khafidz Misbah
+Subscribe Channel Khafidz Misbah
